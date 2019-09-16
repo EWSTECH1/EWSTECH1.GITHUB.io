@@ -1,8 +1,8 @@
-WELCOME EWSTECH1.GITHUB.IO
+WELCOME TO EWSTECH1
 
 ### IMEI SERVICE
 
--IPHONE CHECK IMEI 
+IPHONE CHECK IMEI 
 
 FMI ON/OFF        0.01$
 
@@ -41,7 +41,10 @@ SIMLOCK STATUS    0.08$
 
 
 
-Youtube.com/c/ewstech
+https://www.youtube.com/c/ewstech        
+https://www.facebook.com/cabduqaadir.cabdiraxmaan.9
 
 
-ENG.DHIIGA      TELL:+252612886719
+
+ENG.DHIIGA    
+Whatsapp   +252612886719
