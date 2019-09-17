@@ -33,7 +33,7 @@ IC Remove Service IPhone XS/XR/XS MAX Clean Fast       185$
 
 ICloud Remove IPhone 5/5s/6/6+/6s/6s+/7/7+/8/8+/X/XR/XS/XSMAX (Clean) Fast      170$   
 
-IC Remove SERVICE IPHONE 8G   Fast       143$
+IC Remove SERVICE IPHONE 8G   Fast       149$
 
 IC Remove SERVICE IPHONE 8PLUS/X     Fast     157$
 
@@ -41,7 +41,7 @@ IC REMOVER SERVICE IPHONE 5/5S/6/6P/6S  Fast   95$
 
 IC Remove SERVICE IPHONE 6SPLUS/7G   Fast    128$
 
-IC Remove SERVICE IPHONE 7PLUS    Fast       137$
+IC Remove SERVICE IPHONE 7PLUS    Fast       140$
 
 
 
