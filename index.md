@@ -75,5 +75,4 @@ https://www.facebook.com/cabduqaadir.cabdiraxmaan.9
 
 
 
- 
-Whatsapp   +19408008878
+Telegram:https://t.me/SOMALIASERVICE
